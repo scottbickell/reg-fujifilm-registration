@@ -1,0 +1,1 @@
+# reg-fujifilm-registration
